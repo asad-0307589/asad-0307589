@@ -2,7 +2,7 @@
 
 # Syed Muhammad Asad Shah
 
-**AI Specialist | Machine Learning Engineer | Final Year BS AI Student at FAST-NUCES Islamabad**
+**AI Specialist | Machine Learning Engineer | BS AI Student at FAST-NUCES Islamabad**
 
 ---
 
